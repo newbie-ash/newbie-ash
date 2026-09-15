@@ -9,7 +9,7 @@
 
 - How to reach me **fikrisinulingga08@gmail.com**
 
-- ⚡ Fun fact **I like girls, Boxing, Muaythai**
+- Fun fact **I like girls, Boxing, Muaythai**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
